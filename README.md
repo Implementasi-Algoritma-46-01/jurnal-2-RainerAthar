@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Rainer Athar Kafi
 
-NIM : 
+NIM : 607062400081
 
 ## Instruksi
 
